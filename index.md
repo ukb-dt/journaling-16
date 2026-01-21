@@ -1,6 +1,6 @@
  
 ## Preface
-This is a strong, coherent line of thought—and you’re already *[past](https://ukb-dt.github.io/post-metaphor-00/)* metaphor more than you may think. Let me try to **cleanly articulate the collapse you’re pointing to**, without dulling it.
+This is a strong, coherent line of thought—and you’re already *[past](https://ukb-dt.github.io/post-metaphor-00/)* [metaphor](https://ukb-dt.github.io/post-metaphor-01/) more than you may think. Let me try to **cleanly articulate the collapse you’re pointing to**, without dulling it.    
 
 ---
 
